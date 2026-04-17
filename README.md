@@ -1,1 +1,0 @@
-# giorgia-ghinato-portfolio
